@@ -4,7 +4,6 @@
   - Apaixonada por organização e estudo, procuro deixar tudo mais divertido com um toque de criatividade! 🗃️🤍
   - Formada em inglês pela Wizard e cursando ciência da computação (7/8) 🖥️💖
   - Sempre procurando algo novo, para aprimorar minhas habilidades e adquirir mais conhecimento!
-  - Atualmente estudando o mundo do desenvolvimento web ✨
 ```
 
 <div align="center">
