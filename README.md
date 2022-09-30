@@ -2,7 +2,7 @@
 
 ```diff
   - Apaixonada por organização e estudo, procuro deixar tudo mais divertido com um toque de criatividade! 🗃️🤍
-  - Formada em inglês pela Wizard e cursando ciência da computação (7/8) 🖥️💖
+  - Formada em inglês pela Wizard e cursando ciência da computação (8/8) 🖥️💖
   - Sempre procurando algo novo, para aprimorar minhas habilidades e adquirir mais conhecimento!
 ```
 
